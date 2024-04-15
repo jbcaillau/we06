@@ -13,7 +13,7 @@
 ##  Rando mont Pelat 18-19 juillet
 ![IMG_3050](https://github.com/jbcaillau/we06/assets/62183989/b0e9d9bd-25c1-44f6-b7b7-3a5616326e38)
 - cible = [mont Pelat](https://fr.wikipedia.org/wiki/Mont_Pelat) (3051 m) dans le Mercantour 
-- rando tranquille avec paysage++ sur glacier, voir [[1]](https://www.altituderando.com/Mont-Pelat-3051m-par-Allos-Parking-du-Laus), [[2]](https://www.visorando.com/randonnee-le-mont-pelat-et-le-lac-d-allos), [[3]](https://www.altituderando.com/Mont-Pelat-3051m-par-Allos-Parking-du-Laus), [[4]](https://www.decathlon-outdoor.com/fr-fr/solo/lac-d-allos-et-splendides-panoramas-du-mercantour-5f65f2559011a)
+- rando tranquille avec paysage++ sur glacier, voir [[1]](https://www.altituderando.com/Mont-Pelat-3051m-par-Allos-Parking-du-Laus), [[2]](https://www.visorando.com/randonnee-le-mont-pelat-et-le-lac-d-allos), [[3]](https://www.decathlon-outdoor.com/fr-fr/solo/lac-d-allos-et-splendides-panoramas-du-mercantour-5f65f2559011a)
 - 3 H montée (déniv. 950+), 2 H descente (plus retour parking)
 - [refuge du lac d'Allos](https://www.refugedulacdallos.com), tél : 06 21 71 94 83 / 04 92 83 00 24 
 - [GPS : 44,235114 – 6,70814](https://goo.gl/maps/SkzWTfpCjLvxQ4hg7)
