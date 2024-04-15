@@ -30,4 +30,7 @@
 - soirée du 19 à Vence (logement @JB)
 
 ## Sortie vélo 20 juillet
-- TBA
+- TBAo
+
+## Misc
+- [tricount](https://tricount.com/tMXUuBxaHHIgGyeURj)
