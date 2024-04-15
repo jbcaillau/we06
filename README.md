@@ -30,7 +30,8 @@
 - soirée du 19 à Vence (logement @JB)
 
 ## Sortie vélo 20 juillet
-- TBAo
+- TBA
 
 ## Misc
 - [tricount](https://tricount.com/tMXUuBxaHHIgGyeURj)
+- adresse JB Vence : [729 chemin du baou des noirs, F-06140 Vence](https://maps.app.goo.gl/MnHTe6PynrqGUNUe9)
