@@ -24,7 +24,7 @@
 - dîner 19:00 au refuge (menu unique)
 - prévoir sac à viande + duvet pour dortoir
 - petit-déj. à partir de 6:30
-- 43€ / personne pour dîner + nuitée + petit-déj.
+- 43€ / personne pour dîner + nuitée + petit-déj. (NB : 43€ x 8 en fait, *cf.* résa. dortoir privatif) 
 - possibilité de demander un pique-nique pour le lendemain (10€) ou de déjeuner sur place à la redescente (12:00-15:00) 
 - prise élec dans refuge
 - [X] carte IGN : TOP25 3540 OT Barcelonnette - Pra-Loup - Le Sauze - Allos
